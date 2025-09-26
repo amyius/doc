@@ -3,6 +3,8 @@
 1.短剧(每天更新最新资源，支持搜索、分类、最新、最热等功能，手机与电脑都支持)在线平台： https://www.findshortdrama.com 
 
 最热（盛夏芬德拉（82集）刘萧旭＆郭宇欣 / 真千金她是学霸 /老公请和我恋爱吧 /国民老公带回家（81集）郭宇欣&王皓祯 / 徐徐图芝（75集）赵冠宇＆林籽蓉 / 失控占有（84集）吴宇航&贺灵榣）
+<img width="1715" height="506" alt="image" src="https://github.com/user-attachments/assets/ba9af6e4-9feb-48d0-be28-ede8627d154f" />
+
 
 2.韩剧 (韩剧大全，韩剧在线播放，韩剧在线观看，韩剧在线免费观看): https://www.koreanshort.com 
 
