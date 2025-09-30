@@ -15,3 +15,5 @@
 最热(FWB:肉体换乘恋爱)
 
 3.学习资源网(最全的学习资源网站): https://www.stardecodingroom.com
+
+4.游戏资源网 (最全的游戏资源网站): [findgamepattern](https://www.findgamepattern.com)
