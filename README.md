@@ -16,4 +16,4 @@
 
 3.学习资源网(最全的学习资源网站): https://www.stardecodingroom.com
 
-4.游戏资源网 (最全的游戏资源网站): [findgamepattern](https://www.findgamepattern.com)
+4.游戏资源网 (持续更新的最全的游戏资源网站): https://www.findgamepattern.com
