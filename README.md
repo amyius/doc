@@ -19,16 +19,21 @@
 
 
 
+
+
 2.韩剧 (韩剧大全，韩剧在线播放，韩剧在线观看，韩剧在线免费观看): https://www.koreanshort.com 
 
 最热(FWB:肉体换乘恋爱 / 台风商社)
 
 <img width="1708" height="496" alt="image" src="https://github.com/user-attachments/assets/eb5269f7-11ed-49c6-8e8c-d2a8a8d83e7a" />
 
-![Uploading image.png…]()
+<img width="1749" height="819" alt="image" src="https://github.com/user-attachments/assets/6f157bb9-2b2a-49b5-ad19-73702eef55bc" />
+
+
 
 
 
 3.学习资源网(最全的学习资源网站): https://www.stardecodingroom.com
 
 4.游戏资源网 (持续更新的最全的游戏资源网站): https://www.findgamepattern.com
+
